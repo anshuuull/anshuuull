@@ -2,7 +2,7 @@
 - 👀 I’m interested in developing apps and play games too
 - 🌱 I’m currently learning coding in Python
 - 💞️ I’m looking to collaborate on Python and C++ or C#
-- 📫 How to reach me Send me Email on @anshuuull12345@gmail.com
+- 📫 How you can reach me:- Send me Email on @anshuuull12345@gmail.com OR Direct Message me on Instagram.com @anshhawasthi 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am a Indian and belongs to a small city
 
